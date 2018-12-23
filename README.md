@@ -1,4 +1,4 @@
-Please don't reupload this script
+Please don't sell this script :==)
 
 INSTALLATION
 1. Download this file form github.
